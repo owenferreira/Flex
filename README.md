@@ -1,1 +1,1 @@
-Everything Kofi Shop NFTs 
+Flex Gym/Social media mobile app
